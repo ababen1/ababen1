@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ababen1
 - 👀 I’m interested in gaming
-- 🌱 I’m currently learning hoe to make gamez
+- 🌱 I’m currently learning how to make gamez
 - 💞️ I’m looking to collaborate on ...games
 - 📫 How to reach me ...shout 
 
